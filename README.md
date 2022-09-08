@@ -1,1 +1,1 @@
-# rsschool-cv
+https://APuCTAPX.github.io/rsschool-cv/cv
